@@ -1,3 +1,4 @@
 # sohamrahatalgithub.io
+[soham](youtube.com)
 
-[soham]
+<img src="Bow and thrusters.jpg">
